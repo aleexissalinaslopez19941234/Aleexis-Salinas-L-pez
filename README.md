@@ -1,2 +1,2 @@
-# Aleexis-Salinas-L-pez
+# Aleexis-Salinas-López
 aleexissalinaslopez@gmail.com 
